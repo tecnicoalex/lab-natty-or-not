@@ -12,8 +12,7 @@ Solicitei ao Copilot que me informasse os riscos sobre o mal uso da IA e solicit
 ## 🚀 Resultados
 o Ebook mostrou que, se não houver cuidados a IA prejudica mais do que ajuda.
 
-![Ebook](https://gamma.app/docs/1g9fwoxr0n9a7gq?following_id=el774c9ubq09f1m&follow_on_start=true)
-
+https://gamma.app/docs/1g9fwoxr0n9a7gq?following_id=el774c9ubq09f1m&follow_on_start=true
 
 
 ## 💭 Reflexão (Opcional)
